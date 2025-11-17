@@ -1,4 +1,4 @@
-🌊AquaSafe 360: AquaSafe 360: Tecnología de Seguridad y Prevención Acuática en Tiempo Real
+🌊AquaSafe 360: AquaSafe 360: Tecnología de Seguridad y Prevención Acuática en Tiempo Real 
 
 AquaSafe 360 es una solución digital diseñada para revolucionar la seguridad en deportes acuáticos y el disfrute de entornos como playas y piscinas.
 
